@@ -1,5 +1,5 @@
 Hey Folks, AMAN here !!
-- sophomore at MMMUT Gorakhpur
+- student at MMMUT Gorakhpur
 - coding enthusiast
 - freelancer
 
